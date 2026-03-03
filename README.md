@@ -1,2 +1,2 @@
 # ALL-DAY
-Musculação é pra la,, treino é aqui
+Musculação é pra la, treino é aqui
